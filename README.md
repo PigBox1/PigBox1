@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PigBox1.
+- 👀 I’m interested in Roblox Development and Minecraft Server Development.
+- 🌱 I’m currently learning LUA as a hobby.
+- 💞️ I’m looking to collaborate on projects related to my interests. I'm really keen on joining new inovative projects and I'll be here to help (:
+- 📫 You can reach me on discord (Pig#4499), on twitter DMs (@OfficialPigBox1) or on my business email (pig@kiosko.dev).
